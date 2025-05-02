@@ -1,1 +1,1 @@
-# nvvgu-lyrics
+# nggyu-lyrics
